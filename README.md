@@ -17,5 +17,5 @@
 
 #### Contact Me
 - 📨 [E-mail](mailto:serhatburakaltinsoy@gmail.com)
-- 🐦 [Twitter](https://twitter.com/burkaltnsoy)
+- 🐦 [Twitter](https://twitter.com/sbaltinsoy)
 - 👜 [LinkedIn](https://www.linkedin.com/in/serhat-burak-altinsoy/)
